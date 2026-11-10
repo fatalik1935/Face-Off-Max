@@ -229,4 +229,4 @@ Face Off Max is a full free version with **all features and updates included**. 
 Get started with Face Off Max today and unleash your creativity!
 
 ---
-**Last updated:** 2026-11-10 00:59:39 UTC
+**Last updated:** 2026-11-10 08:02:26 UTC
